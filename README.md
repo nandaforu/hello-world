@@ -6,5 +6,7 @@ Hello People,
 This is another venture into a new area of my life, experimenting with 
 unknown, unpredictable , and amazing... :-) ha ha
 
-lets Play!
+lets Create something Beautiful!
+
+
 
